@@ -1,9 +1,1 @@
-fdsafdsafdafda
-
-filter(sadfa
-
-
-       fdsafdsa
-
-
-fdsa)
+fdsafdsafdsa
